@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tcoleman
+- 👀 I’m interested in being an ambassador
+- 📫 How to reach me @fuckingbillionaire - telegram
