@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @tcoleman
-- 👀 I’m interested in being an ambassador
-- 📫 How to reach me @fuckingbillionaire - telegram
+artemcryptoman@gmail.com
+ArtemCrypto#6083
+@fuckingbillionaire TG
